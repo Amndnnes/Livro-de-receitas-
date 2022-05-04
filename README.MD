@@ -4,8 +4,14 @@ Olá! Bem-vendo ao meu livro de receitas. :wave:
 
 - Strogonoff de Frango
 
-- Pavê
+- Pavê de chocolate
+
+- Molho branco com macarrão 
+
+- Pizza de liquidificador 
 
   
 
+  
+  
   
